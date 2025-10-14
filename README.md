@@ -1,2 +1,2 @@
 # my-nature
-Beautiful p
+Beautiful place
