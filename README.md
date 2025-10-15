@@ -1,2 +1,2 @@
-# Gruop 5 picture
+# Group 5 picture
 Beautiful place
